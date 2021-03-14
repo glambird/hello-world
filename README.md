@@ -6,5 +6,5 @@ Our nieche are people interested in marketing articles and posts about how to ma
 Our youtube channel will be coming soon. 
 Please feel free to check us out at: www.glambird.pl
 
-Gigi 
+Gigi,
 Glambird Founder
